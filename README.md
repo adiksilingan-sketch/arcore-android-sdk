@@ -442,4 +442,4 @@ PrivacyTerms
 Nobody can use hack link permanently closed report block banned terminated
 [8/17, 3:05 PM] adiksilingan: Private Personal KING-laro1, nobody can use hack link permanently closed report block banned terminated
 [8/17, 3:05 PM] adiksilingan: Private Personal +63 919 161 0468, nobody can use hack link permanently closed report block banned terminated
-[8/17, 3:06 PM] adiksilingan: Private Personal Send this message without editing. (Z1lSTC4Gs4Qe), nobody can use hack link permanently closed report block banned terminated
+[8/17, 3:06 PM] adiksilingan: Private Personal Send this message without editing. (Z1lSTC4Gs4Qe), nobody can use hack link permanently closed report block banned terminated, Private Personal Verify encryption & End-to-end encryption was automatically verified other ways to verify encryption nobody can use hack link permanently closed block report banned terminated,
