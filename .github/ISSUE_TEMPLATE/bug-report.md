@@ -30,4 +30,7 @@ assignees: ''
 ### WORKAROUNDS (IF ANY)
 
 
-### ADDITIONAL COMMENTS
+### ADDITIONAL COMMENTS,
+
+[8/23, 12:36 AM] adiksilingan: Private Personal ⭐ my connection Database,data hotspot WiFi, nobody can use hack link permanently closed block report banned terminated
+[8/23, 12:42 AM] adiksilingan: Private Personal ⭐ Google Family Link nobody can use hack link permanently closed block report banned terminated
