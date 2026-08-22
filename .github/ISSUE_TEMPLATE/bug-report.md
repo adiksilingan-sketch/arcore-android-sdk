@@ -67,4 +67,11 @@ This policy is for managing security incidents, including data breaches. In draf
 [8/22, 10:16 PM] Contact +63327231534: Private Personal ⭐Facebook · FOX23 Shae Rozzi
 10+ reactions · 1 year ago
 💻 👀 Scammers are threatening to shutdown your Facebook account.. see what they're after ...
-3️⃣ Report & Block the Scammer Report It: Use Facebook's reporting tools to flag the message. This helps protect both you and the community, nobody can use Hack link permanently closed block report banned terminated
+3️⃣ Report & Block the Scammer Report It: Use Facebook's reporting tools to flag the message. This helps protect both you and the community, nobody can use Hack link permanently closed block report banned terminated,[8/21, 10:31 AM] Contact +63327231534: Private Personal Data mode security alerts & Manage security alerts Privacy & Safety nobody can use Hack link permanently closed block report banned terminated
+[8/21, 10:33 AM] Contact +63327231534: Private Personal ⭐ Data mode security alerts & Manage security alerts Privacy & Safety nobody can use Hack link permanently closed block report banned terminated
+[8/21, 10:34 AM] Contact +63327231534: Private Personal ⭐CyberGhost VPN
+https://www.cyberghostvpn.com
+Protect Your Online Privacy - Secure, Private, Reliable nobody can use Hack link permanently closed block report banned terminated
+[8/21, 12:54 PM] adiksilingan: Private Personal ⭐Kaspersky™
+https://www.kaspersky.com
+Kaspersky™ Antivirus | Special Offer - Up To 42% Off, nobody can use hack link permanently closed block report banned terminated
